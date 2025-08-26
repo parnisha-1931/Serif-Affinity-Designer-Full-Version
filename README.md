@@ -1,0 +1,1 @@
+# Serif-Affinity-Designer-Full-Version
